@@ -7,7 +7,7 @@
 I want to gain new knowledge in a new field of activity for me
 
 ## Skills
-No skills.I'm new here.
+No skills. I'm new here.
 
 ## Education
 Secondary school
